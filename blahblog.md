@@ -80,5 +80,5 @@ instead of doing all of that, what today helped me to realise is that I'm making
 - direction toward foil
 - if they wanted me to be gold, then they'd allow it
 	- nobody likes gold kenny, because gold kenny gets everything he wants and all things come easy. they want *silver* kenny instead, having no self-defined attractive qualities
-	- I don't really want to be gold (in the symbolic sense) either. gold emissive, and I want to be *attractive* -- I'm actually heading more in the direction of black/carbon/foil direction, because more how source is I want to reflect back (and feel myself) only higher frequency versions of their output.
+	- I don't really want to be gold (in the symbolic sense) either. gold is emissive, and I want to be *attractive* -- so I'm actually heading more in the direction of black/carbon/foil, because more like how source is: I want to reflect back (and feel myself) only higher frequency versions of their output.
 	- becoming a good foil com5s with practise.
