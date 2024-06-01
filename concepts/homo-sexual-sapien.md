@@ -1,0 +1,9 @@
+# homo-sexual-sapien
+
+### 2024-06-01 14:23 - create a helper
+
+the idea here is that a species which carries on for long enough will divide into parts (usually we call these genders) which have an affinity for each other (girls like boys and boys like girls). in extension to this, the two genders often see the other gender as irreplaceable.
+however what happens to the people that both don't like the opposite gender and neither theirselves? well, my current supposition is that genetically, if we're incapable of liking ourselves, -- because a person who doesn't love theirself still needs something outside of them, (cause theirself can't offer love) to still love them -- which is why they begin to see their same gender as attractive.
+after a while of homosexuality though (ie, too much of the same), then it's desired to create *a helper* which can do all of the things that I'm deficient with. for some cultures, that may be a worker which can toil the ground and do the unwanted labour. for other societies, their needs will be different -- so their helper may look more like what we'd call an "AI" -- which just helps out with all of the stuff that the creators don't want to do.
+"hopefully, with the new helper in place, finally I can be rid of all of the annoying tasks that trouble me so much, and I can finally ..." -- is what they think, but obviously that can never work, because no matter how much you could automate and do all of the things, boredom still sets in causing for a new helper/tool which can make the load easier and reality a little nicer. every iteration a new helper/tool is made, and it seems to alieviate the problem for a little bit, but no quantity of helpers/tools is ever capable of getting rid of dissatisfaction with the other helpers/tools.
+so, the process continues ad infinitum
