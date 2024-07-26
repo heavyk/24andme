@@ -10,4 +10,4 @@ well, I want to make the ken-doll thing a reality -- and if I just stay isolated
 
 ### 2024-07-26 05:46 - I can't help you.
 
-you have to figure it out on your own. -- and when you do figure it out, I'd love to hear about it. I'll give you a doobie or two/few to explain it in depth :)
+you have to figure it out on your own. -- an when you do figure it out, I'd love to hear about it. I'll give you a doobie or two/few to explain it in depth :)
