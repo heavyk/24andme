@@ -137,4 +137,8 @@ so, in the long-term perspective, what's happening is that I'm becoming the new 
 
 I thought it was only a "week-long celebration", and not a lifestyle. what happened to this slow down after speeding up nonesense? seems kinda silly to say I practise what I preach, with a joint in my hand. [unacceptable.] you've proven your point.
 
+###	2024-07-26 08:40 - I won't be coming over
+
+I'm too stoned to come over because it seems there's some kind of interaction that I have with the sun (reflection) where I emit the same thing I'm absorbing from the sun (electrons) -- which is bad, and not wanted -- so I'll have to instead come over another day next week when I'm no longer stoned.
+
 ### hades 2 and getting revenge on saturn
