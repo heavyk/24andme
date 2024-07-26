@@ -135,6 +135,6 @@ so, in the long-term perspective, what's happening is that I'm becoming the new 
 
 ### 2024-07-26 05:29 - are we still celebrating the "war on drugs"?
 
-I thought it was only a "week-long celebration", and not a lifestyle. what happened to this slow down after speeding up nonesense? seems kinda silly to say I practise what I preach, with a joint in my hand. you've proven your point.
+I thought it was only a "week-long celebration", and not a lifestyle. what happened to this slow down after speeding up nonesense? seems kinda silly to say I practise what I preach, with a joint in my hand. [unacceptable.] you've proven your point.
 
 ### hades 2 and getting revenge on saturn
