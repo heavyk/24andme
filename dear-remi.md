@@ -139,6 +139,6 @@ I thought it was only a "week-long celebration", and not a lifestyle. what happe
 
 ###	2024-07-26 08:40 - I won't be coming over
 
-I'm too stoned to come over because it seems there's some kind of interaction that I have with the sun (reflection) where I emit the same thing I'm absorbing from the sun (electrons) -- which is bad, and not wanted -- so I'll have to instead come over another day next week when I'm no longer stoned.
+I'm too stoned to come over because it seems there's some kind of interaction that I have with the sun (reflection) where I emit the same thing I'm absorbing from the sun (electrons) -- which is bad, and not wanted -- so I'll have to instead come over another day next week when I'm no longer stoned (or there's no sun).
 
 ### hades 2 and getting revenge on saturn
